@@ -1,0 +1,1 @@
+# jiyuQualcommQCC3040shuangMiccVctonghuajiangzaoANCzhudongjiangzaoTWSerjifangan-zonghewendan
